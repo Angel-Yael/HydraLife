@@ -1,3 +1,3 @@
 # Hydra Life
 
-- Karla Esmeralda Vega Yllescas 6°g
+- Karla Esmeralda Vega Yllescas 6°F
